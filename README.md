@@ -1,1 +1,1 @@
-A ppt a projekt mappában van (Bemutató.pptx)
+A ppt a projektuj mappában van Bemutató.pptx néven!
